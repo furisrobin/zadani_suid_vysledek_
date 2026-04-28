@@ -1,1 +1,0 @@
-# zadani_suid_vysledek_
